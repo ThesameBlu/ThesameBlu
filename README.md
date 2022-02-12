@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ThesameBlu
+- 👀 I’m interested in stuff
+- 🌱 I’m currently learning nothing
+- 💞️ I’m looking to love no one 
+- 📫 Do not reach me
